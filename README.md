@@ -1,2 +1,2 @@
 # mini1.txt
-[uniuhuvuv
+uboihpi
